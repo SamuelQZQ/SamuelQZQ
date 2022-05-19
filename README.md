@@ -1,6 +1,6 @@
 # https://QZQ.at
 
-## Github Stats
+##[Github](https://github.com/SamuelQZQ) Stats
 
 <div style="display: flex;">
   <a href="#" style="flex:1;">
