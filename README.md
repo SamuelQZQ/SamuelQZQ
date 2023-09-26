@@ -4,4 +4,4 @@
 
 ## Bilibili: [数字游牧人](https://space.bilibili.com/4848323)
 
-Follower > 110k (TikTok + Bilibili)
+Follower > 150k (TikTok + Bilibili)
